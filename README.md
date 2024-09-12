@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Quer! I like PC building.
